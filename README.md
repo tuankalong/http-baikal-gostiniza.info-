@@ -1,1 +1,1 @@
-# http-baikal-gostiniza.info-
+# http-baikal-gostiniza.info
